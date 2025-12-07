@@ -15,7 +15,7 @@ I'm passionate about creating beautiful designs that tell a story.
 - Procreate
 - MS Word
 
-📫 How to reach me
+📫 How to reach me:
 
 LinkedIn:(https://www.linkedin.com/in/mahdi-lee/)
   
