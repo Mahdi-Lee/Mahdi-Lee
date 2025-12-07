@@ -9,12 +9,12 @@ I'm passionate about creating beautiful designs that tell a story.
 - Canva
 - Color Theory
 - Composition
-- 
-- 💻 Technical Skills
+
+💻 Technical Skills
 - Canva
 - Procreate
 - MS Word
-- 
-- 📫 How to reach me
-- LinkedIn:(https://www.linkedin.com/in/mahdi-lee/)
+
+📫 How to reach me
+LinkedIn:(https://www.linkedin.com/in/mahdi-lee/)
   
